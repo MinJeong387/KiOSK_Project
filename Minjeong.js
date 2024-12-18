@@ -1,3 +1,2 @@
-addEventListenerb
-dfdf
-dfdfdfff
+바보바보바보바보바보바보
+멍청이멍청이
